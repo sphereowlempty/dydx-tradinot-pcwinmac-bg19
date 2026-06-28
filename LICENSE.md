@@ -1,4 +1,4 @@
-# 
+# احترافي dYdX bot التداول أدوات for Mac OS | نهائي dYdX bot التداول أدوات for PC Windows. Featuring واجهة برمجة التطبيقات للتبادل اللامركزي and واجهة برمجة التطبيقات للتبادل المركزي — optimized for maximum performance.
 
 
 
